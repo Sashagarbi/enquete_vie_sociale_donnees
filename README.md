@@ -1,5 +1,7 @@
 # enquete_vie_sociale_donnees
 **Intro**
+
+
 quels termes et adjectifs viennent en tête quand on pense à la personne de Mylène Farmer. – > wooclap → https://app.wooclap.com/events/INAXFR/0
 Donc on voit déjà un certain champ lexical / des champs lexicaux se dégager, le mystère, la curiosité, l’intemporalité, etc , c’est une bonne manière de voir à quel point Mylène Farmer peut être catégorisée de manière diverse, pourtant, et c’est ca qui la distingue notamment dans le paysage français, elle est ce qu’on peut appeler un ovni, une exception, tant dans son oeuvre à proprement parler que dans la manière dont elle est médiatisée.
 courte présentation : Mylène Farmer est née Mylène Jeanne Gautier le 12 septembre 1961 au Québec. Elle s'est imposée comme l'une des artistes françaises les plus célèbres et les plus emblématiques, avec une carrière s'étend sur plus de quatre décennies.  Apparition sur la scène musicale française dans les années 1980 avec son premier single, "Maman a tort" (1984), qui deviendra le prélude de son parcours à succès dans le monde de la musique pop. Le partenariat qu’elle forme avec le compositeur Laurent Boutonnat s'est avéré être une force déterminante dans sa carrière, avec pour résultat de nombreux succès dans les hit-parades et des albums acclamés par la critique. 
